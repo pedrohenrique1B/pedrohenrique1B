@@ -1,4 +1,4 @@
-### boas vinadas ao meu perfil 💙
+### boas vindas ao meu perfil 💙
 
 <!--
 **pedrohenrique1B/pedrohenrique1B** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
