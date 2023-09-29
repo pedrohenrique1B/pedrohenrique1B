@@ -12,5 +12,5 @@ henrique.santos.pedro1807@escola.pr.gov.br
 
 
 
-
+![](https://media.tenor.com/wy2zHeWyf2gAAAAd/side-eye-dog-suspicious-look.gif)
 https://media.tenor.com/wy2zHeWyf2gAAAAd/side-eye-dog-suspicious-look.gif
